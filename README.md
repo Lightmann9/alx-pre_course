@@ -1,1 +1,1 @@
-My first readme
+Open for collaborations
